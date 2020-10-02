@@ -1,4 +1,4 @@
-Actual Freelance Developer, 🔥 open for mission/jobs near Annecy ~ Geneva.
+Actually Freelance Developer, 🔥 open for mission/jobs near Annecy ~ Geneva.
 
 Not an expert of a particular domain but a Swiss knife of web oriented technologies ⛑️. <br />
 Love share and learn about tech, sciences, literature ...
