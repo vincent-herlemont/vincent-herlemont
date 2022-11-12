@@ -1,9 +1,9 @@
-Actually Freelance Developer, 🔥 open for missions/jobs near Annecy ~ Geneva or remote Job.
+Freelance Developer, 🔥 open for missions/jobs near Annecy ~ Geneva or remote Job.
 
 Not an expert of a particular domain but a Swiss knife of web oriented technologies ⛑️. <br />
 Love share and learn about tech, sciences, literature ...
 
-👉 Jobs experiences : [AdTech](https://www.sublime.xyz/en), [App(Sound Social Networking)](https://thms.works/work/sounds-app), [ERP](http://www.imagina-international.com/), [Cloud company](https://www.apalia.net/).
+👉 Jobs experiences : [3D digital twins(Aerys)](https://aerys.in/), [AdTech](https://www.sublime.xyz/en), [App(Sound Social Networking)](https://thms.works/work/sounds-app), [ERP](http://www.imagina-international.com/), [Cloud company](https://www.apalia.net/).
 More detail on [Linkedin Profile](https://www.linkedin.com/in/vincentherlemont/)
 
 ✌️ Side Projects : 
