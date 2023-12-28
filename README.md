@@ -1,4 +1,4 @@
-Currently focusing on DevOps and building robust applications in Rust. I have a passion for sharing and learning about tech, sciences, literature, and more.
+I have a passion for sharing and learning about tech, sciences, literature, and more.
 
 👉 Currently working at [3D digital twins(Aerys/SmartShape)](https://smartshape.com/), with past experiences in [AdTech](https://www.sublime.xyz/en), [App(Sound Social Networking)](https://thms.works/work/sounds-app), [ERP](http://www.imagina-international.com/), and a [Cloud company](https://www.apalia.net/).
 You can find more details on my [Linkedin Profile](https://www.linkedin.com/in/vincent-herlemont-7a0034240/).
